@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Kartoffelschaeler
+- 👀 I’m interested in Kartoffelschälen
+- 🌱 I’m currently learning Kartoffeln zu schälen
+- 💞️ I’m looking to collaborate on Kartoffelschälen
+- 📫 How to reach me Kartoffelladen
+- 😄 Pronouns: Schäler/Schälerinnen
+- ⚡ Fun fact: Kartoffeln sind voll geil
